@@ -1,4 +1,4 @@
-### trying to do better :)
+### trying to do better
 ---
 ### Languages and Tools :
 
